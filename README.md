@@ -25,6 +25,10 @@ I'm always interested in:
 - Learning opportunities
 - Connecting with fellow developers
 
+
+## 📄 Resume
+
+Download my resume: [Selva's Resume](https://ppl-ai-file-upload.s3.amazonaws.com/web/direct-files/attachments/90973971/598d96ad-2179-4f7a-b3d5-057b92ae9de0/selva-Resume.pdf)
 ### 📫 How to Reach Me
 Feel free to connect and collaborate!
 
