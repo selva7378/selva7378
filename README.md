@@ -28,9 +28,11 @@ I'm always interested in:
 
 ## 📄 Resume
 
-Download my resume: [Selva's Resume](https://ppl-ai-file-upload.s3.amazonaws.com/web/direct-files/attachments/90973971/598d96ad-2179-4f7a-b3d5-057b92ae9de0/selva-Resume.pdf)
+Download my resume: [Selva's Resume](https://drive.google.com/file/d/12pN2n7ZJ0wQJTbaMI0myEfHL95lq-Z_r/view?usp=sharing)
 ### 📫 How to Reach Me
-Feel free to connect and collaborate!
+MOBILE NO: 9344574782 or 9751590041
+
+GMAIL:     selvaganesh7378@gmail.com
 
 ### 🌍 Location
 📍 India
