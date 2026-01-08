@@ -34,8 +34,14 @@ MOBILE NO: 9344574782 or 9751590041
 
 GMAIL:     selvaganesh7378@gmail.com
 
+## 📱 Published Apps
+
+- **[Viduthalai](https://play.google.com/store/apps/details?id=com.selvaganesh7378.viduthalai)** - Tamil Dictionary App on Google Play Store
+
 ### 🌍 Location
+
 📍 India
 
 ---
+
 💡 _"Code, Learn, Repeat"_
