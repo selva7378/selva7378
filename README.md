@@ -36,7 +36,7 @@ GMAIL:     selvaganesh7378@gmail.com
 
 ## 📱 Published Apps
 
-- **[Viduthalai](https://play.google.com/store/apps/details?id=com.selvaganesh7378.viduthalai)** - Tamil Dictionary App on Google Play Store
+- **[Viduthalai](https://play.google.com/store/apps/details?id=com.selvaganesh7378.viduthalai)** - Digital Detox App on Google Play Store
 
 ### 🌍 Location
 
